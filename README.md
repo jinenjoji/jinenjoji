@@ -1,3 +1,4 @@
  ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀⠀⠀⠀⠀⠀⠀ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏⠀⠀⠀⠀⠀[rentry](https://rentry.co/spikespiegell)⠀⠀⠀[guns.lol](https://guns.lol/senzai4ever)⠀⠀⠀[straw](https://senzaluchiumi.straw.page/)
 
-![tumblr_bd6a7fdde3de41c5587d0ae376d4bade_1b5f8f20_1280](https://github.com/user-attachments/assets/99e87556-362d-49f3-87d0-e7a3732c6630)
+![a8e9692d6418e80c124c7b2b77f1d3e8](https://github.com/user-attachments/assets/d787310f-5b55-407c-ac6d-9038398bab65)
+
